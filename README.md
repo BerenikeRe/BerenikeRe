@@ -4,4 +4,4 @@ I'm Berenike (she/her). I finished my master studies in 2021 and am now working 
 
 I was part of the EqualStreetNames project for Mainz.
 
-You can find me on Twitter: @BerenikeRe 
+You can find me on Twitter: @BerenikeRe 🐦
